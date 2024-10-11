@@ -14,11 +14,11 @@ Yes, Green Leaf Zoo uses advanced encryption protocols to protect your data and 
 5. How do I cancel my subscription or manage my account?
 Open the Settings page in the app and select Account Management. From there, you can manage your subscription or cancel any active plans.
 6. I found a bug or issue, how do I report it?
-We're sorry you're having trouble! Please contact us at support@greenleafzoo.com with the details of the issue, and our team will work to resolve it as soon as possible.
+We're sorry you're having trouble! Please contact us at Jaming736@outlook.com with the details of the issue, and our team will work to resolve it as soon as possible.
 7. How do I update the app?
 Updates are regularly released to improve performance and add new features. Visit the App Store or Google Play and check for available updates.
 Contact Us
 If you need further assistance or have any questions that aren't answered here, feel free to reach out:
 
-Email: support@greenleafzoo.com
+Email: Jaming736@outlook.com
 
